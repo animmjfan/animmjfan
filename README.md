@@ -3,7 +3,7 @@
 - I currently know bash, python, c++ and simple html and css and js \(I probally won't do much webdev\)
 - How to reach me: email me at animmjfan@gmail.com
 - Pronouns: she/her
-- and I am transfem!
+- Details: that one transbian rhythm gamer programmer who is very eepy
 
 <!---
 animmjfan/animmjfan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
